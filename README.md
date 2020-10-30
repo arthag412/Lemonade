@@ -19,5 +19,5 @@ If the lemonade is a little sweet for your taste, add a little more straight lem
 
 4 Chill: Refrigerate 30 to 40 minutes.
 
-Serve with ice, sliced lemons.
+5 Serve with ice, sliced lemons.
 
